@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zinex15Hello I'm Zinex
+HI
 I am interested in programming and love to be creative in it
 I am currently learning one of the programming languages ​​and I am trying to excel in it and I do not want to stop learning
 high education
